@@ -1,1 +1,1 @@
-# Budinger-and-Associates
+# Budinger and Associates
